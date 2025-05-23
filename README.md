@@ -6,7 +6,7 @@ Need a working **Elysium dark web link**? This verified 2025 guide provides safe
 
 http://elyszvwzxpyvwb4b7qqcyrbm7plmdicwjgot5ncgkdkvhplojmmftfqd.onion
 
-[<img src="/default/column.webp" width="200" alt="Click for Elysium dark web link">](http://elyszvwzxpyvwb4b7qqcyrbm7plmdicwjgot5ncgkdkvhplojmmftfqd.onion)
+[<img src="/default/column.webp" alt="Click for Elysium dark web link">](http://elyszvwzxpyvwb4b7qqcyrbm7plmdicwjgot5ncgkdkvhplojmmftfqd.onion)
 
 <a href="http://elyszvwzxpyvwb4b7qqcyrbm7plmdicwjgot5ncgkdkvhplojmmftfqd.onion"><img src="/default/matrix.webp" alt="Verified Elysium dark web portal" style="max-width: 100%;"></a>
 
