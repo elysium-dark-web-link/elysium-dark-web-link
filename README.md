@@ -48,7 +48,7 @@ Avoid these phishing risks:
 - Sites requesting personal information
 - Mirrors not listed on official channels
 
-<a href="http://elyszvwzxpyvwb4b7qqcyrbm7plmdicwjgot5ncgkdkvhplojmmftfqd.onion"><img src="/default/1ogin.png" alt="Secure Elysium dark web login" style="max-width: 100%;"></a>
+<a href="http://elyszvwzxpyvwb4b7qqcyrbm7plmdicwjgot5ncgkdkvhplojmmftfqd.onion"><img src="/default/far.webp" alt="Secure Elysium dark web login" style="max-width: 100%;"></a>
 
 ---
 
