@@ -4,11 +4,11 @@ Need a working **Elysium dark web link**? This verified 2025 guide provides safe
 
 ## 🔗 Official Elysium Dark Web Links (2025 Verified)
 
-http://elyszvwzxpyvwb4b7qqcyrbm7plmdicwjgot5ncgkdkvhplojmmftfqd.onion
+http://6ekltb4rr7br2gjqixjwiymwvg7mmhf7et7622vto2f6oijd66encwqd.onion
 
-[<img src="/default/column.webp" alt="Click for Elysium dark web link">](http://elyszvwzxpyvwb4b7qqcyrbm7plmdicwjgot5ncgkdkvhplojmmftfqd.onion)
+[<img src="/images/layer.webp" width="200" alt="Click for Elysium dark web link">](http://6ekltb4rr7br2gjqixjwiymwvg7mmhf7et7622vto2f6oijd66encwqd.onion)
 
-<a href="http://elyszvwzxpyvwb4b7qqcyrbm7plmdicwjgot5ncgkdkvhplojmmftfqd.onion"><img src="/default/matrix.webp" alt="Verified Elysium dark web portal" style="max-width: 100%;"></a>
+<a href="http://6ekltb4rr7br2gjqixjwiymwvg7mmhf7et7622vto2f6oijd66encwqd.onion"><img src="/images/dot.webp" alt="Verified Elysium dark web portal" style="max-width: 100%;"></a>
 
 *(For educational purposes only. Bookmark this page for updated links.)*
 
@@ -25,7 +25,7 @@ http://elyszvwzxpyvwb4b7qqcyrbm7plmdicwjgot5ncgkdkvhplojmmftfqd.onion
 
 3. **Mirror Networks**  
    Use these updated Elysium mirrors when main site is down:  
-   http://elyszvwzxpyvwb4b7qqcyrbm7plmdicwjgot5ncgkdkvhplojmmftfqd.onion
+   http://6ekltb4rr7br2gjqixjwiymwvg7mmhf7et7622vto2f6oijd66encwqd.onion
 
 ---
 
@@ -48,7 +48,7 @@ Avoid these phishing risks:
 - Sites requesting personal information
 - Mirrors not listed on official channels
 
-<a href="http://elyszvwzxpyvwb4b7qqcyrbm7plmdicwjgot5ncgkdkvhplojmmftfqd.onion"><img src="/default/far.webp" alt="Secure Elysium dark web login" style="max-width: 100%;"></a>
+<a href="http://6ekltb4rr7br2gjqixjwiymwvg7mmhf7et7622vto2f6oijd66encwqd.onion"><img src="/images/left.webp" alt="Secure Elysium dark web login" style="max-width: 100%;"></a>
 
 ---
 
