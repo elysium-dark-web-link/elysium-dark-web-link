@@ -68,4 +68,6 @@ Avoid these phishing risks:
 ### 📌 Critical Reminder  
 This guide provides research information about darknet technologies. Accessing certain services may violate laws in your country. We strongly advise reviewing your local regulations before proceeding.
 
-Update:  06/11/2025 11-04 Link is now responsive
+
+
+Update:  13.06.2025 03:45:28
