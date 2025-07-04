@@ -82,4 +82,6 @@ This guide provides research information about darknet technologies. Accessing c
 
 
 
-Update:  26 June
+
+
+Update:  Friday 04 July 2025
