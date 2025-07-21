@@ -90,4 +90,6 @@ This guide provides research information about darknet technologies. Accessing c
 
 
 
-Update: Corrected broken profiling tool references
+
+
+Update:  07/21/2025 Link is now available
