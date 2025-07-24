@@ -92,4 +92,6 @@ This guide provides research information about darknet technologies. Accessing c
 
 
 
-Update:  07/21/2025 Link is now available
+
+
+Update: The link is now available and working perfectly.
