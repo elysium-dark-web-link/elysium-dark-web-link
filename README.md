@@ -98,4 +98,6 @@ This guide provides research information about darknet technologies. Accessing c
 
 
 
-Update:  13 August url is alive
+
+
+Update:  Tuesday 19 August 2025 Repaired dead links
